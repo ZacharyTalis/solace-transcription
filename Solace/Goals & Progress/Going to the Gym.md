@@ -1,0 +1,8 @@
+# Going to the Gym
+Let's hit the gym, as yourself.  
+Going to the gym can be a challenging activity as a transgender individual. The two most significant complications are utilizing the locker room and finding apparel that works with your body while working out.  
+In terms of utilizing the locker rooms, it is advisable that when utilizing these facilities to find a stall or private area to change clothing, especially if your anatomy isn't in total conformity with your gender identity. People, irrespective of gender or gender identity aren't terribly fond of the individuals walking around nude or exposing themselves in a locker room as is, so these suggestions aren't to insinuate shame in anyway [sic].  
+If there is a multi-occupancy shower, it is not advisable to utilize it if your anatomy isn't in total conformity with your gender identity. As frustrating as this may be, the potentially harm and conflict [sic] that can come from using a multi-occupancy shower is too significant at this point in time in society to risk it.  
+Alternatively, you can change into your workout clothing before going to the gym and change when you get home.  
+Do not work out while binding as this can cause significant pain and damage. Additionally, it is not advised to wear a packer during cardio exercises or other high impact workouts.  
+If it doesn't cause further gender dysphoria, a high support sports bra might help with chest compression if that is a concern. A loose fitting t-shirt might also help, as well as it being an acceptable and common workout garment for men.
